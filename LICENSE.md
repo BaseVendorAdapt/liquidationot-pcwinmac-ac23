@@ -1,4 +1,4 @@
-# 
+# Instantâneo liquidation sniper bot modelos para Mac OS | Top liquidation sniper bot modelos para PC Windows. Com suporte a margem isolada e negociação de futuros — otimizado para máximo desempenho em cada plataforma.
 
 
 
